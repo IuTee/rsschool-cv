@@ -1,4 +1,5 @@
 # **IULIIA TIMOFEYEVA**
+![](https://github.com/IuTee/rsschool-cv/blob/gh-pages/imgonline-com-ua-Resize-cm-mm-inch-8leYDiVmbFBK.jpg)
 ---
 ## **CONTACT INFORMATION**
 - Tel: +995599698100
